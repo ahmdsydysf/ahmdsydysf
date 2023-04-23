@@ -1,5 +1,5 @@
 
-<img width="250" align="right" src="https://c.tenor.com/_DOBjnGspYAAAAAM/code-coding.gif">
+<img width="250" align="right" src="[https://c.tenor.com/_DOBjnGspYAAAAAM/code-coding.gif](https://cdn-images-1.medium.com/max/853/1*QPSlOyQ0EeJG169-JBYOUQ.gif)">
 
 <h3 align="center">
   Welcome to Yousef Dergham's profile!
