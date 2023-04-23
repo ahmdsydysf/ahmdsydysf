@@ -1,5 +1,5 @@
 
-<img width="250" align="right" src="https://www.mediafire.com/view/op1v3vbykwa92qz/1_QPSlOyQ0EeJG169-JBYOUQ.gif/file">
+<img width="250" align="right" src="https://media.giphy.com/media/l0He4nkyI5cMhXzvW/giphy.gif">
 
 <h3 align="center">
   Welcome to Yousef Dergham's profile!
